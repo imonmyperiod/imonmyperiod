@@ -1,2 +1,4 @@
-ㅤㅤㅤㅤ<img width="1920" height="1080" alt="image" src="https://github.com/user-attachments/assets/20405203-4e33-499a-993a-d028b59488ce" />
+ㅤㅤㅤㅤㅤㅤㅤㅤ<img width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/ca57d11e-870e-4995-8448-03d0b3ce6283" />
+
+
 
